@@ -6,6 +6,7 @@
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I like Trains
 - gate is a good manga
+- akjdksf
 
 <!---
 Studidart/Studidart is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
