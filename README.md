@@ -5,6 +5,7 @@
 - 📫 How to reach me email, what you thought i'd just hand it to you?
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I like Trains
+-gate is a good manga
 
 <!---
 Studidart/Studidart is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
